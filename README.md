@@ -1,1 +1,1 @@
-# knightsErraticPodcats
+# The Knights Erratic: Podcast
